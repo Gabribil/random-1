@@ -1,0 +1,1 @@
+Esa aplicacion es de software libre úsela como le venga en gana.
